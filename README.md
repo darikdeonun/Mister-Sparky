@@ -1,1 +1,2 @@
-# Mister-Sparky
+# Mister Sparky
+Some examples of the technical skills required for electricians include: Installing and maintaining electrical [Mister Sparky](https://www.mistersparky.com/new-port-richey/), equipment and devices. Using and maintaining hand and power tools, such as screwdrivers, pliers and drills. Repairing wiring systems. Installing electrical conduits, cables, tubing. Install and maintain wiring, control, and lighting systems. Inspect electrical components, such as transformers and circuit breakers. Identify electrical problems using a variety of testing devices. Repair or replace wiring, equipment, or fixtures using handtools and power tools.
